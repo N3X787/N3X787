@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @N3X787
+- 👀 I’m interested in ... Programing and Gaming C++/C#/Python If you come at me with some Assembly I will burn you at the stake! Witchcraft!
+- 🌱 I’m currently learning ... A little bit of everything ALL OF THE TIME!
+- 💞️ I’m looking to collaborate on ... Nothing rigt now.
+- 📫 How to reach me ... DM
